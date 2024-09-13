@@ -1,2 +1,2 @@
 # Swadhin-Choudhury
-[SWADHIN](https://www.Swadhin.com)
+[SWADHIN](https://Swadhin.com)
